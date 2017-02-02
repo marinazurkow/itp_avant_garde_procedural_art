@@ -21,12 +21,11 @@ i couldn't find any information directly from the artist, but i think a clue sta
 
 fellow surrealist artists also used stream of consciousness as inspiration, which is reflected in the dream-like sequences of salvador dalí and even in his collaboration with luis buñuel, un chien andalou, which is a landmark in modern art and which resonates in several spheres, such as the influence it had on late 1980's band pixies, who based their song debaser, first track on their second album, on this surrealist film.
 
-i think that these works try to break with art tradition and try to explore the rich imagery of dreams and the possibilities that randomness and non-linearity provide. they hope to convey feelings that are hard to descibe, by bypassing reason and appealing directly to the subconscious. 
+i think that these works try to break with art tradition and try to explore the rich imagery of dreams and the possibilities that randomness and non-linearity provide. they hope to convey feelings that are hard to describe, by bypassing reason and appealing directly to the subconscious.
 
 * what was the context for the work? what was happening historically?
 
 this work was done in early 1920's, right after the end of world war i, which was a time where reason had justified these massive war between supposedly civilized cultures, so that nothing made much sense anymore and it was a failure of the modern world.
-
 
 ## class 02
 
